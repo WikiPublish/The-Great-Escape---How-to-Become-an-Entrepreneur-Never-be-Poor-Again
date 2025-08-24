@@ -1,0 +1,2 @@
+# The-Great-Escape---How-to-Become-an-Entrepreneur-Never-be-Poor-Again
+Knowledge + Hard Work &amp; Determination = Wealth! Give people a ¨Life &amp; Career Plan¨ and also in the end tell my entire story from senior year in high school (studying Internet Marketing) until now. Inspired by: Anthony Viccino - ¨Amplified Impact¨, Daniel Freeman´s ¨RiseAndGrind.com¨ &amp; ¨How to make a Dollar out of 15 cents¨, and Robert Kiyosaki.
